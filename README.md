@@ -9,4 +9,4 @@ Sou estudante da [Alura](https://alura.com.br)
   ### contato 📧
   professorcavalieri@gmail.com
 
-  ![](https://tenor.com/pt-BR/view/mail-download-send-letter-email-gif-12348454)
+  ![](https://tenor.com/pt-BR/view/mail-download-send-letter-email-gif-9007340091789372478)
